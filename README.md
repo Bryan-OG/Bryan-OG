@@ -2,7 +2,7 @@
 
 **`Digital Craftsman (Analyst/Nerd/Creator)`**
 
-I'm an analyst and content creator building my version of my ideal digital toolbox one step at a time. 
+I'm an analyst and content creator. Building up my ideal digital toolbox one step at a time.
 
 ---
 
